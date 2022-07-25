@@ -1,3 +1,4 @@
-Website for S4F Landau
+**Die Regionalgruppe Landau der Scientist for Future hat sich aufgelöst bzw. ist inaktiv**
 
-https://scientists4future-landau.de/
+Kontaktanfragen bitte an die über https://de.scientists4future.org/
+
